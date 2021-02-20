@@ -1,3 +1,0 @@
-# teste
-
-# Eu amo Você
